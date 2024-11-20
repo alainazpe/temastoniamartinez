@@ -22,10 +22,10 @@
 <a href="https://web.archive.org/web/20150220235246/http://toniamartinez.com/descargas/toniamartinezelcuartodelostrastos.zip">El cuarto de los trastos</a>
 
 
-<a href="">Terbutalina</a>
+<a href="">Terbutalina (Pendiente de subir)</a>
 
 
-<a href="">Cracoviana</a>
+<a href="">Cracoviana (Pendiente de subir)</a>
 
 
 **Canciones de la maqueta "Procesando" :**
@@ -33,25 +33,25 @@
 <a href="https://web.archive.org/web/20070205163821/http://www.toniamartinez.com:80/descargas/toniamartinezsocfelic.zip">Cuando fuimos piratas</a>
 
 
-<a href="">He aparcado lejos</a>
+<a href="">He aparcado lejos (Pendiente de subir)</a>
 
 
-<a href="">Quedan 15 días</a>
+<a href="">Quedan 15 días (Pendiente de subir)</a>
 
 
-<a href="">Adicto a viajar</a>
+<a href="">Adicto a viajar (Pendiente de subir)</a>
 
 
-<a href="">Volátil</a>
+<a href="">Volátil (Pendiente de subir)</a>
 
 
-<a href="">El que faria jo per tu</a>
+<a href="">El que faria jo per tu (Pendiente de subir)</a>
 
 
-<a href="">No te recuerdo</a>
+<a href="">No te recuerdo (Pendiente de subir)</a>
 
 
-<a href="">La prematura y yo</a>
+<a href="">La prematura y yo (Pendiente de subir)</a>
 
 
 <a href="https://web.archive.org/web/20150221044753/http://www.toniamartinez.com/descargas/toniamartinezquieroserunadetusamigas.zip">Quiero ser una de tus amigas</a>
@@ -60,60 +60,60 @@
 <a href="https://web.archive.org/web/20131022184125/http://www.toniamartinez.com/descargas/toniamartinezloscriosquierenhacerelamor.zip">Los críos quieren hacer el amor</a>
 
 
-<a href="">Cambia el renglón</a>
+<a href="">Cambia el renglón (Pendiente de subir)</a>
 
 
-<a href="">Quién sufre hoy</a>
+<a href="">Quién sufre hoy (Pendiente de subir)</a>
 
 
-<a href="">Melodía boreal</a>
+<a href="">Melodía boreal (Pendiente de subir)</a>
 
 
-<a href="">Solemne rap de licenciatura</a>
+<a href="">Solemne rap de licenciatura (Pendiente de subir)</a>
 
 
-<a href="">Canción resumen del verano 2009</a>
+<a href="">Canción resumen del verano 2009 (Pendiente de subir)</a>
 
 
-<a href="">Quiero ser una de tus amigas (Extended mix)</a>
+<a href="">Quiero ser una de tus amigas (Extended mix) (Pendiente de subir)</a>
 
 
 **Canciones de la maqueta "Foto-Logro" :**
 
-<a href="">Soy nuevo aquí</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">Soy nuevo aquí</a>
 
 
 <a href="https://web.archive.org/web/20160819113013/http://www.toniamartinez.com/descargas/toniamartinezoperacionsalida.zip">Operación salida</a>
 
 
-<a href="">La máquina del metro</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">La máquina del metro</a>
 
 
-<a href="">Barracón</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">Barracón</a>
 
 
-<a href="">Amo la aguja</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">Amo la aguja</a>
 
 
-<a href="">No tingues tanta por de mi</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">No tingues tanta por de mi</a>
 
 
-<a href="">Rayadme el coco</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">Rayadme el coco</a>
 
 
-<a href="">El momento fue ayer</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">El momento fue ayer</a>
 
 
-<a href="">Dalt del sostre</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">Dalt del sostre</a>
 
 
-<a href="">Qué parte no entiendes</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">Qué parte no entiendes</a>
 
 
-<a href="">Melodía cardinal</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">Melodía cardinal</a>
 
 
-<a href="">La máquina del metro (Extended mix)</a>
+<a href="https://web.archive.org/web/20150220223446if_/http://toniamartinez.com/descargas/toniamartinezmaquetafotologro.zip">La máquina del metro (Extended mix)</a>
 
 
 **Canciones de la maqueta "Cafeína":**
@@ -124,7 +124,10 @@
 <a href="https://web.archive.org/web/20070804063401/http://toniamartinez.com/descargas/toniamartinezpiso30metros.zip">Piso de 30 metros</a>
 
 
-<a href="https://web.archive.org/web/20070804063401/http://toniamartinez.com/descargas/toniamartinezpiso30metros.zip">Salbutamol</a>
+<a href="https://web.archive.org/web/20131206210802/http://www.toniamartinez.com/descargas/toniamartinezcafeina.zip">Piso de 30 metros (Extended mix)</a>
+
+
+<a href="https://web.archive.org/web/20070804063610/http://toniamartinez.com/descargas/toniamartinezsalbutamol.zip">Salbutamol</a>
 
 
 <a href="https://web.archive.org/web/20070804062957/http://toniamartinez.com/descargas/toniamartinezenestaciudad.zip">En esta ciudad</a>
@@ -133,7 +136,7 @@
 <a href="https://web.archive.org/web/20070804063539/http://toniamartinez.com/descargas/toniamartinezesinjusto.zip">Es injusto</a>
 
 
-<a href="https://web.archive.org/web/20070804063242/http://toniamartinez.com/descargas/toniamartinezpanxoipinxo.zip">Pedí que no fueras tú</a>
+<a href="https://web.archive.org/web/20070804063213/http://toniamartinez.com/descargas/toniamartinezpediquenofuerastu.zip">Pedí que no fueras tú</a>
 
 
 <a href="https://web.archive.org/web/20070804063147/http://toniamartinez.com/descargas/toniamartineznoploresmes.zip">No plores més</a>
